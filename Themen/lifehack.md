@@ -1,0 +1,1 @@
+Um Konserven zu öffnen, einen Löffel verwenden. Mit der Löffelfläche den Nupsi nach oben biegen, mit dem Stiel vom Löffel in den Nupsi gleiten und vorsichtig  nach oben ziehen um den Deckel zu öffnen. 
